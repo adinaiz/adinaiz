@@ -25,4 +25,4 @@
 
 ## Contacts
 [<img align="left" width="22px" alt="javeoff | Telegram" src="https://simpleicons.org/icons/telegram.svg" />](https://t.me/adinainz)
-[<img align="left" width="22px" alt="javeoff | Email" src="https://simpleicons.org/icons/gmail.svg" />](adinaizn@gmail.com)
+[<img align="left" width="22px" alt="javeoff | Email" src="https://simpleicons.org/icons/gmail.svg" />](https://mail.google.com/mail/u/?authuser=ADINAINIIAZBEK@GMAIL.COM)
